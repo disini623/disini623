@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @disini623
-- 👀 I’m interested in Ui design, Data science, etc...
+- 👀 I’m interested in Data Analyst, Data science, etc...
 - 🌱 I’m currently learning @ Sabaragamuwa University 
 - 💞️ 
 - 📫 
